@@ -2,7 +2,7 @@
 
 ## 🚀 Data Scientist | Machine Learning Engineer
 
-📧 hemanth.data22@gmail.com | 📞 +1 (832) 819-5583 | 📍 Long Beach, CA
+📧 hemanth.data22@gmail.com | 📞 +1 (832) 819-5583 | 📍 Austin, TX
 
 ---
 
